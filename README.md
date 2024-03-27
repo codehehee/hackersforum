@@ -1,1 +1,1 @@
-hackhubqsieih5xor4knu5vt<snip>.onion
+hackhubqsieih5xor4knu5vt\<snip\>.onion
